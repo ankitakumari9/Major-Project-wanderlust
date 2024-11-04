@@ -1,1 +1,1 @@
-# Major-Project---wanderlust
+# Major-Project-wanderlust
